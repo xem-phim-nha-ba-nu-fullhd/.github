@@ -6,6 +6,7 @@
 
 ## Nội Dung và Thông Điệp
 Xem Phim Nhà Bà Nữ" đưa người xem vào cuộc sống của Bà Nữ, một người phụ nữ giàu lòng nhân ái, đã dành cả đời mình để chăm sóc cho gia đình. Qua từng thước phim, người xem sẽ thấy được tầm quan trọng của việc truyền thống được gìn giữ và sự ấm áp mà tình thân mang lại. Bộ phim không chỉ giới thiệu về các món ăn dân gian, phong tục tập quán, mà còn nhấn mạnh vào giá trị của sự đoàn kết trong gia đình.
+![Xem Phim nhà Bà Nữ](https://assets-global.website-files.com/6613668ca994c2c00bfb7c97/6613a556fc6fe66485799b97_reviewphimnhabanu.jpg)
 
 ## Các Nhân Vật Chính
 Nhân vật Bà Nữ là điểm nhấn của phim, qua đó thể hiện hình ảnh người phụ nữ Việt Nam truyền thống, kiên cường và đầy đức hy sinh. Các nhân vật khác trong phim, bao gồm các con và cháu của bà, mỗi người đều có câu chuyện riêng biệt nhưng lại được kết nối một cách khéo léo qua các tình tiết chính.
